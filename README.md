@@ -15,7 +15,7 @@ Based in Philadelphia, Pennsylvania
 
 - 🤖 I am currently pursuing a **Master’s degree in Artificial Intelligence & Machine Learning** at **Drexel University**.
 
-- 📫 How to reach me: **yusef.tohamy@temple.edu**
+- 📫 How to reach me: **yuseftohamyy@gmail.com**
 
 ---
 
